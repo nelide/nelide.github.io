@@ -1,0 +1,45 @@
+---
+title: La montagna d'estate
+author: Nelide
+category: literature
+layout: post
+---
+
+
+I vacanzieri si dividono in due principali categorie: quelli che vanno al mare e quelli che prediligono i monti. Ci sono anche delle fazioni ibride che, per distinguersi dalle masse insulse di portatori sani di bikini o zainetti, preferiscono le capitali europee, i musei, le città d'arte. <br>Solitamente chi ama il mare non vuol sentir parlare di scalate e scarpe da trekking, agognando la ciabattina estiva durante tutti mesi freddi e, viceversa, chi adora ammazzarsi di arrampicate detesta il solo pensiero della sabbia tra le dita dei piedi o del sale tra i capelli.
+
+Io appartengo alla specie marina, nuoto da quando ho quattro anni, grazie agli insegnamenti di una nonna zaratina che, affrescando sapientemente la sua *ars oratoria*, narrava di avere un balconcino da cui si tuffava direttamente nelle acque cristalline dell'isola dalmata.<br>Amo l'azzurro del mare, il fresco ristoro che rigenera il corpo dopo una giornata assolata, il poter camminare con l'acqua ai polpacci per ore e, qualora la location lo consenta, poter nuotare tra svariati pesci con la sensazione di far parte di uno splendido acquario.
+
+Ciò premesso, ultimamente mi sono accostata alla montagna, da turista inesperta e un po' curiosa.
+Ho trascorso tre giorni sulle Dolomiti, mentre vi scrivo ho ancora i polpacci dolenti...<br>Vorrei fornire dei piccoli spunti per chi si accosta alla montagna, come me, da neofita.
+
+In primo luogo, la montagna non è vacanza, questo meglio tenerlo a mente da subito, se è vero come è vero, infatti, che in ferie bisognerebbe abolire gli orologi, in montagna vi mettono un razzo sotto il letto alle 8 del mattino, quando vi concedono un po' di tempo, altrimenti prima, quando il sole ancora non fa capolino dalle vette.<br>Di corsa a far colazione, tutto ciò che farete durante la mattina, lo farete di corsa, sappiatelo. Dopo aver ingollato un caffè, vi recherete sul posto che avrete concordato con le vostre guide alpine, solitamente amici e/o parenti, la sera prima: in montagna nulla è lasciato al caso.<br>Una volta sul luogo da esplorare vi renderete conto che la fatica è immane e vi chiederete perplessi <em>perché</em> qualcuno ancora si ostina a chiamarla vacanza.
+
+Inizierete a inerpicarvi fingendo di entusiasmarvi per il paesaggio che vi circonda, che è effettivamente molto bello e dotato di fascino, peccato dover tenere gli occhi fissi al suolo per evitare inciampi e pericolose cadute; ansimerete copiosamente, avrete una mosca appiccicata al collo sudato e un ciuffo di capelli che vi finisce in bocca ad ogni passo, mosso da un leggero venticello che asciuga il sudore sulla schiena gelandolo, non potrete però esimervi dal salutare, sorridenti, tutti coloro che incontrerete sul percorso!<br>Sì, signori miei, l'italiano medio che detesta a morte i suoi simili, che non saluta nemmeno la zia se la incontra al bar, che al supermercato si nasconde dietro lo scaffale della Simmenthal se intravede la suocera, che arricchisce intere generazioni di avvocati con le cause condominiali, in alta montagna sente l'impellente esigenza di salutare chiunque incontri il suo sguardo durante la faticosissima "passeggiata".<br>Così si prosegue in un continuo "Buongiorno", "Buongiorno a lei" fino a che non si arriva col sorriso di plastica al rifugio! La mecca di tutti i villeggianti delle Alpi è il rifugio, che i più fighi appellano "malga".
+
+In sostanza, il richiamo del cibo ha sempre il sopravvento su tutto! Mentre annaspate verso il panino con il würstel raccogliendo tutte le energie rimaste, meravigliati voi stessi dal riuscire a muovere ancora le gambe, la coda dell'occhio destro non potrà non notare, soffrendo, dei ragazzi anche diversamente giovani, molte volte, che corrono leggiadri facendo capire a tutto il circondario, che sì, loro quell'impresa, la stanno compiendo tutta di corsa, maledetti!<br>Spesso lo fanno con uno zaino sulla schiena che contiene tutta la borsa di Mary Poppins più lo spazzacamino e Mary stessa in persona.
+
+Un'altra fondamentale informazione che dovete sapere infatti, è che in montagna d'estate che si vada per un week end o per un mese, lo si fa con un intero baule contenente gli indumenti di tutte e quattro  le stagioni. Si può passare in un'ora dai pantaloncini e canottiera delle migliori marche di abbigliamento tecnico, costosissimo e orrendamente puzzolente al primo contatto con l'ascella, ostentato dai *poser meneghini*, al piumino con doppia imbottitura corredato di cappuccio e guanti.<br>C'è anche un pubblico più umile che svaligia il noto magazzino francese con indumenti decisamente più cheap, ma altrettanto maleodoranti. Eh pare proprio che sì, lo sportivo addà puzzà!
+
+I sensi di colpa per la birrozza formato XL e il tagliere di salumi scompaiono al pensiero del rientro alla base, quindi ci si concede anche una bella fetta di strudel, perché no?
+
+Qui è d'obbligo una considerazione sul Trentino Alto Adige: voi credete che sia un'unica  regione, perché così è scritto, perché così le nostre maestre delle elementari ci hanno insegnato, ebbene nulla di più falso! Sappiate che Trentino e Alto Adige, in comune hanno solo lo speck e appunto lo strudel, o detto meglio  le mele.<br>La prima è una regione cordiale, dallo spiccato accento veneto, dove il turista è accolto e coccolato.<br>Gli altoatesini, invece, vi guarderanno come Salvini osserva uno sbarcato a Lampedusa, fingeranno di non capire la vostra lingua, parleranno tra di loro in tedesco e vi diranno, al Ristorante, che la cucina è chiusa anche se non sono ancora le 20:00 per il solo fatto che provenite da una regione sotto il Piemonte.<br>Un'altra cosa che dovete assolutamente sapere recandovi in Trentino è che i cetriolini stanno ai taglieri di salumi, come la panna al maritozzo nella Capitale!
+
+Ma vi chiederete la giornata come prosegue dopo il massacro dell'escursione: in primis non dovete assolutamente incorrere nell'errore di ritenere la discesa meno faticosa della salita.<br>La vacanza in montagna sovverte tutte le regole e così vedrete che quando già vi sentite a metà dell'opera, dovrete affrontare l'ostacolo più grande: tornare a valle! Sì, ok avrete meno fiatone, meno acido lattico nelle chiappette, ma le ginocchia, i polpacci e soprattutto la tensione nervosa saranno i vostri punti deboli.
+Forse Omero scese da qualche monte ellenico prima di inventare la vulnerabilità del tallone di Achille!
+Avrete il terrore di sdrucciolare e mentre il vostro vicino esperto vi sorride, saluta chi incontra e fa programmi per il giorno dopo, voi sarete indecisi se odiarlo a morte o se immaginarvi già al pronto soccorso più vicino con la caviglia slogata, come minimo.
+
+Già, pronto soccorso...allora, se siete ipocondriaci, la montagna non fa per voi: generalmente prima di trovare un posto degno del nome <em>ospedale</em> dovrete fare 40 km, se va bene, di curve.
+
+Meglio non pensarci...comunque arrivati finalmente in Paese, vi sentirete come Dante quando rivede le stelle, vincenti e appagati. Avrete un leggero mal di montagna, poi dicono alla barca a vela! Nausea, giramento di testa, respiro affannoso...tutto regolare, ti consoleranno, in fondo siamo a 3000 metri, e certo, che sciocca che sono, io che credevo al beneficio della natura e al benessere della vita di montagna!
+
+Ma a quel punto inizia l'ora migliore della giornata, quella di libertà: potrete fare una doccia, dormicchiare, leggere. 
+Starete ancora decidendo però cosa concedervi, quando v'incalzeranno per l'uscita pomeridiana, quindi se volete un consiglio, non portate nulla da leggere, un peso inutile!
+Coppa di gelato o fetta di Sacher - lo strudel lo avete già mangiato a pranzo - oppure yogurt con castagne al miele, giusto per tenere occupato lo stomaco fino allo *Spritz*delle 19:00. Eh sì, ragazzi miei, in quota dimenticatevi la dieta, la linea, le astinenze. Nel frattempo, seduti al tavolino potrete ammirare le numerosissime razze canine che sfilano per il centro del Paesello.
+Una gita estiva in montagna e una fiera canina pari sono. Tutte le razze sono presenti all'appello e i padroni degli innocenti quattro-zampe si osservano orgogliosi, facendo a gara a chi ha il molosso più grosso.
+Io, col mio meticcio Pinscher nano/bassotto, ho vinto la gara limousine, non sarà grossa ma a lunghezza non la batte nessuno!
+
+Dopo cena, grappino o amaro per decidere, con meno lucidità possibile, l'itinerario del giorno successivo.
+Una partita a carte e poi a nanna, niente sesso, si è in ritiro in fondo: la preparazione atletica prima di tutto e poi diciamolo, non sentirete più le gambe e avrete solo voglia di svenire su di un morbido cuscino!
+
+Ciò premesso tutto molto bello: le cascate, gli alberi, il verde fatto con lo Stabilo Boss, la temperatura fresca fino a venti gradi meno della città... però ora scusate vado a mettere i costumi in valigia, che il mare mi attende!
