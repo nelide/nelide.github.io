@@ -1,11 +1,11 @@
 ---
-title: Titolo del post
+title: La cultura woke e Lucio Battisti
 author: Nelide
 category: Società
 layout: post
 ---
 
-# La cultura woke e Lucio Battisti
+## La cultura woke e Lucio Battisti
 
 Ultimamente è tornato all'onore delle cronache il termine *WOKE* e la sua etimologia viene spesso stravolta.
 
