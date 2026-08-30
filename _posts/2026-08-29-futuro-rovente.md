@@ -1,11 +1,9 @@
 ---
-title: Futuro rovente
+title: Il futuro rovente
 author: Nelide
 category: Società
 layout: post
 ---
-
-# Il futuro rovente
 
 Cerco d'immaginare lo stato della Terra tra una trentina d'anni mentre porto a passeggio il mio cane.
 
