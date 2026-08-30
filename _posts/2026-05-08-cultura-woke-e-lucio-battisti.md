@@ -5,8 +5,6 @@ category: Società
 layout: post
 ---
 
-## La cultura woke e Lucio Battisti
-
 Ultimamente è tornato all'onore delle cronache il termine *WOKE* e la sua etimologia viene spesso stravolta.
 
 La parola infatti, non allude, come qualcuno vuole fare credere, al cosiddetto politicamente corretto, no: il termine ha origini molto più dignitose, risale infatti agli anni '30 e vuole dire letteralmente svegliarsi, tenere gli occhi e le orecchie aperti sulle disuguaglianze, sulle discriminazioni, sulle ingiustizie.
